@@ -58,3 +58,5 @@ Meaning emerges through the reader’s understanding.
 Creative Commons Attribution–NonCommercial–ShareAlike 4.0 (CC BY-NC-SA 4.0)
 
 ---
+
+2026 - Zerunobe
