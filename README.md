@@ -55,6 +55,8 @@ biết nén thì đại,
 biết dẫn thì khiển,
 biết lan thì áp.
 
+---
+
 📌 Note
 
 The original concept and authoritative form of Vạn Hải Kinh are written in Vietnamese (Hán–Việt form).
