@@ -43,6 +43,18 @@ Kim lộ ư hải, loạn nan sinh.
 
 ---
 
+🔹 Hậu chú
+
+Kinh không truyền thuật,
+chỉ lưu quy luật.
+Người thuận hải thì mượn thế,
+kẻ nghịch hải thì gánh lực.
+Biết hội thì tụ,
+biết xoay thì chuyển,
+biết nén thì đại,
+biết dẫn thì khiển,
+biết lan thì áp.
+
 📌 Note
 
 The original concept and authoritative form of Vạn Hải Kinh are written in Vietnamese (Hán–Việt form).
