@@ -15,7 +15,7 @@ Any living being possesses the foundation to approach it — what differs is not
 
 📜 Kinh văn
 
-Nhập hải giả, kiến kỷ tâm.
+NHẬP HẢI GIẢ · KIẾN KỈ TÂM
 Hải ý mênh mang độ vạn nhân,
 Ngũ hành quy nhất chuyển phù vân.
 Âm dương giao thác xoay thiên địa,
@@ -24,6 +24,22 @@ Nhật hỏa thiêu thân khai tái thế,
 Nguyệt hoa dưỡng phách tẩy u ngần.
 Thuận kinh giác ngộ thành chơn đạo,
 Nghịch lý trầm luân hóa kiếp nhân.
+
+---
+
+TỨ TUYỆT · NGŨ PHÁP HẢI KINH
+Tụ linh nhất điểm khóa nguyên hình,
+Đại thế lan trường khuếch vạn sinh.
+Áp vực định khuôn trấn pháp tính,
+Khiển hành chuyển động hóa thiên kinh.
+
+---
+
+TỨ TUYỆT · NGƯNG LUYỆN TƯỢNG
+Ngũ pháp tương giao định hải hình,
+Tụ nguyên, đại thế, áp vô minh.
+Khiển hành chuyển tượng thành chân tướng,
+Ngưng luyện phi sinh, vạn pháp sinh.
 
 ---
 
@@ -45,7 +61,7 @@ Kim lộ ư hải, loạn nan sinh.
 
 🔹 Hậu chú
 
-Kinh không truyền thuật,
+Kinh bất truyền thuật,
 chỉ lưu quy luật.
 Người thuận hải thì mượn thế,
 kẻ nghịch hải thì gánh lực.
@@ -54,6 +70,8 @@ biết xoay thì chuyển,
 biết nén thì đại,
 biết dẫn thì khiển,
 biết lan thì áp.
+
+> Biết ngưng thì thành.
 
 ---
 
