@@ -43,6 +43,24 @@ Ngưng luyện phi sinh, vạn pháp sinh.
 
 ---
 
+TỨ TUYỆT · U HẢI TRẤN HỒN
+Hải tàng vong ảnh bất quy trần,
+Nhất kinh định mệnh trấn u hồn.
+Oan linh nhập hải tiêu tranh chấp,
+Thủy pháp vô xâm giữ bản nguyên.
+
+---
+
+"Thái sơ phân nguyên lập ngũ hành,
+Hải ý tuần hoàn diễn vạn hình.
+Lưỡng nghi xoay chuyển khai bát tượng,
+Quái vị an nhiên định càn khôn.Chơn lý phân lưu sinh vạn pháp,
+Tà niệm tụ hội hóa quần ma.
+Quái nghịch xoay chiều loạn thiên tượng,
+Nhất tâm bất định, giới liền tà."
+
+---
+
 🔹 Tổng luận
 
 > Hải ý hóa Thái cực,
