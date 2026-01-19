@@ -54,7 +54,8 @@ Thủy pháp vô xâm giữ bản nguyên.
 "Thái sơ phân nguyên lập ngũ hành,
 Hải ý tuần hoàn diễn vạn hình.
 Lưỡng nghi xoay chuyển khai bát tượng,
-Quái vị an nhiên định càn khôn.Chơn lý phân lưu sinh vạn pháp,
+Quái vị an nhiên định càn khôn.
+Chơn lý phân lưu sinh vạn pháp,
 Tà niệm tụ hội hóa quần ma.
 Quái nghịch xoay chiều loạn thiên tượng,
 Nhất tâm bất định, giới liền tà."
