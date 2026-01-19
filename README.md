@@ -31,7 +31,7 @@ TỨ TUYỆT · NGŨ PHÁP HẢI KINH
 Tụ linh nhất điểm khóa nguyên hình,
 Đại thế lan trường khuếch vạn sinh.
 Áp vực định khuôn trấn pháp tính,
-Khiển hành chuyển động hóa thiên kinh.
+Khiển hành, chuyển động, định thiên kinh.
 
 ---
 
@@ -72,6 +72,15 @@ biết dẫn thì khiển,
 biết lan thì áp.
 
 > Biết ngưng thì thành.
+
+---
+
+🔹 Hậu kinh
+
+Dẫn thủy hồi nguyên hội vạn lưu,  
+Thông tri hành xứ vạn duyên thâu.  
+Ngưng kết phi sinh thành vạn tượng,  
+Hải kinh nhất niệm vạn pháp chu.  
 
 ---
 
