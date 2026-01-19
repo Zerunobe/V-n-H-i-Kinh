@@ -19,7 +19,7 @@ NHẬP HẢI GIẢ · KIẾN KỈ TÂM
 Hải ý mênh mang độ vạn nhân,
 Ngũ hành quy nhất chuyển phù vân.
 Âm dương giao thác xoay thiên địa,
-Phong vũ tương thành chuyển sinh tử.
+Phong vũ tương thành định sinh ân.
 Nhật hỏa thiêu thân khai tái thế,
 Nguyệt hoa dưỡng phách tẩy u ngần.
 Thuận kinh giác ngộ thành chơn đạo,
