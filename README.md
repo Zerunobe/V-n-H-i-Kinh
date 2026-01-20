@@ -105,10 +105,10 @@ Hải kinh nhất niệm vạn pháp chu.
 
 🔹 Tổng luận
 
-Hải thủy vô tâm bất luận tà,
+"Hải thủy vô tâm bất luận tà,
 Chiếu niệm thành hình tự kiến ta.
 Thanh trược phi do kinh định sẵn,
-Nhất niệm trầm phù, ảnh hóa hoa.
+Nhất niệm trầm phù, ảnh hóa hoa."
 
 ---
 
